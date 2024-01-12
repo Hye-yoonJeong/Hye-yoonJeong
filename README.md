@@ -1,5 +1,12 @@
 ### Hi there 👋
 
+INFP with 90% I!
+An Architet's major who hates designing.
+Love to daydream and painting.
+Always busy with new interests. :)
+Will do my best to pull up the little E in me when u call :)
+
+
 <!--
 **Hye-yoonJeong/Hye-yoonJeong** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
